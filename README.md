@@ -1,0 +1,57 @@
+# Seeds
+
+### France
+
+http://grainesdevie.net  
+http://grainesdetroc.fr  
+http://seedsburo.org  
+http://semencespaysannes.org  
+http://grainesurbaines.com  
+http://semeur.fr  
+http://balseli.free.fr  
+http://biodiva.free.fr  
+http://eauvivante31.free.fr/passegraines  
+http://boursedesgraines.fr  
+http://open-solutions.info  
+http://kokopelli-semences.fr  
+http://fermedesaintemarthe.com  
+http://bongraine.info  
+http://essembio.com  
+http://biaugerme.com  
+http://germinance.com  
+[http://scinfolex.com/open-source-seeds-licence...](http://scinfolex.com/2013/05/03/open-source-seeds-licence-une-licence-pour-liberer-les-semences)  
+
+
+### Belgium
+
+http://semaille.com  
+
+
+### Germany
+
+http://magicgardenseeds.com  
+
+
+### UK
+
+http://realseeds.co.uk  
+https://rhs.org.uk  
+http://kew.org/science-conservation/millennium-seed-bank  
+http://apps.kew.org/seedlist  
+
+
+### India
+
+http://navdanya.org  
+
+
+### US
+
+http://savingourseeds.org  
+http://seedsavers.org  
+
+
+## Worldwide
+
+http://seedfreedom.info  
+http://opensourceseedinitiative.org  
