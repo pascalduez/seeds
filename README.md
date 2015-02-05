@@ -19,7 +19,6 @@ http://bongraine.info
 http://essembio.com  
 http://biaugerme.com  
 http://germinance.com  
-[http://scinfolex.com/open-source-seeds-licence...](http://scinfolex.com/2013/05/03/open-source-seeds-licence-une-licence-pour-liberer-les-semences)  
 
 
 ### Belgium
@@ -55,6 +54,19 @@ http://seedsavers.org
 
 http://seedfreedom.info  
 http://opensourceseedinitiative.org  
+
+
+### Articles
+
+[FR]  
+[http://scinfolex.com/open-source-seeds-licence...](http://scinfolex.com/2013/05/03/open-source-seeds-licence-une-licence-pour-liberer-les-semences)  
+[A vos graines, citoyens !](http://gastronomie.blog.lemonde.fr/2015/01/29/a-vos-graines-citoyens)
+
+
+### Videos
+
+[FR]  
+[La guerre des graines](https://www.youtube.com/watch?v=vGtGSFneI7o#t=506)
 
 
 <br><br>
