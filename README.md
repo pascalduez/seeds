@@ -6,6 +6,7 @@ http://grainesdevie.net
 http://grainesdetroc.fr  
 http://seedsburo.org  
 http://semencespaysannes.org  
+http://semonslabiodiversite.com  
 http://grainesurbaines.com  
 http://semeur.fr  
 http://balseli.free.fr  
