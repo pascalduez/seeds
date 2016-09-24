@@ -67,7 +67,7 @@ http://opensourceseedinitiative.org
 ### Videos
 
 [FR]  
-[La guerre des graines](https://www.youtube.com/watch?v=vGtGSFneI7o#t=506)
+[La guerre des graines](https://www.youtube.com/watch?v=vGtGSFneI7o)
 
 
 <br><br>
