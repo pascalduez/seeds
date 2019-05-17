@@ -49,7 +49,7 @@ http://navdanya.org
 
 http://savingourseeds.org  
 http://seedsavers.org  
-
+https://www.rareseeds.com  
 
 ### Worldwide
 
